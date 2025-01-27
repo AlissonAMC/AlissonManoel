@@ -10,7 +10,7 @@ Tenho 22 anos, sou de Escada-PE e sou apaixonado por programação e jogos! Estu
           
           
           
-
+👯‍♀️ Procuro colaborar em uma empresa que me dê oportunidades de evoluir...
 
 💻 Estou ME formadado em engenharia de software e faço Mobile em tempo livre;
 
